@@ -1,5 +1,5 @@
-- 👋 hi, i`m @maduvalter
-- 👀 
+- 👋 daee 
+- 👀 @maduvalter
 - 🌱
 - 💞️ 
 - 📫 
